@@ -1,1 +1,0 @@
-# mdtyazilim.github.io
